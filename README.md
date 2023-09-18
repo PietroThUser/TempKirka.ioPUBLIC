@@ -1,2 +1,2 @@
 # TempKirka.ioPUBLIC
-https://kirka.io/games/NA~Syg31PScQ
+https://kirka.io/games/NA~86R6t-pOz
